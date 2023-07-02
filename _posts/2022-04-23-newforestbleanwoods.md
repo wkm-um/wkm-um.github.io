@@ -17,7 +17,9 @@ New Forest是我打卡的第一个树林路线（不过我去的时候显然不�
 ![](https://raw.githubusercontent.com/wkm-um/wkm-um.github.io/master/images/newforest_1.jpg)
 
 相比之下Blean Wood的路线有更多绿色，而且整体不那么空旷——这也意味着会多踩入一些不明显的小路，真正地穿行在树木间。也许是时机正好，树林里有一段路鸟鸣不断，很是热闹。
+
+两个森林环线都在3小时以内。
  
-  *(树林中间也有小溪流过，还是很漂亮的，不远处还有树木独木桥)*
+  *(Blean Wood)*
 
 ![](https://raw.githubusercontent.com/wkm-um/wkm-um.github.io/master/images/blean_1.jpg)
