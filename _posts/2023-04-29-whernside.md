@@ -39,7 +39,7 @@ Helmsley and Rievaulx Abbey, & Pen-y-ghent & Whernside at Yorkshire Dales Nation
 
 ![](https://raw.githubusercontent.com/wkm-um/wkm-um.github.io/master/images/york_3.jpg)
 
-本想把这次作为2022年最后一爬，却没想到彩蛋出现在下山后。我算好时间踱步到火车站时发现电子指示牌上赫然滚动着着"因为员工短缺(shortage of train crew or whatever，本次火车取消"几个字，而下一班去leeds的火车要等接近两小时。10月的英国下午很早就开始变凉，而候车室因为是周末也不开门，不久就又有八九个一道来等车的英国人陆续发现了这个噩耗……曲折按下不表，我等到了两小时后到leeds的火车，又挤上了一列狂热坐满球迷的列车，站回了伦敦。
+本想把这次作为2022年最后一爬，却没想到彩蛋出现在下山后。我算好时间踱步到火车站时发现电子指示牌上赫然滚动着着"因为员工短缺(shortage of train crew or whatever)，本次火车取消"几个字，而下一班去leeds的火车要等接近两小时。10月的英国下午很早就开始变凉，而候车室因为是周末也不开门，不久就又有八九个一道来等车的英国人陆续发现了这个噩耗，并开始讨论是原地等车，去附近等转运大巴，还是步行到下一个火车站……曲折按下不表，我等到了两小时后到leeds的火车，又挤上了一列狂热坐满球迷的列车，站回了伦敦。
 
 **Whernside**
 
