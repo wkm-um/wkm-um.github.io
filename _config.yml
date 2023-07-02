@@ -57,7 +57,7 @@ gitalk:
   proxy:
 
 # 输入Google Analytics web tracking code
-google_analytics:
+google_analytics: G-CFGRPKP9EQ
 
 utteranc:
   repo: # Your github repo path, also see: https://utteranc.es
