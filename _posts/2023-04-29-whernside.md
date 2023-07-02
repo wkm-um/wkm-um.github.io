@@ -17,7 +17,7 @@ Helmsley and Rievaulx Abbey, & Pen-y-ghent & Whernside at Yorkshire Dales Nation
 - 火车 + 公交(Market Place, Hemsley)
 - 3小时往返，简单(当然是在穿了合适鞋子的前提下)
 
-五月的North York Moors 正是风景如画的时候，这条路标识清楚，会经过农场并单程终止于Rievaulx Abbey(修道院)，脚程不慢的话完全有机会买票进修道院，拿一张pamphlet想象古时侯僧侣的生活，补习一些英国文化。我去的时候正值National Trust搞活动，一位老奶奶热情给我介绍了修道院历史和参观要点，然后晓之以情动之以理希望我加入National Trust会员……
+五月的North York Moors 正是风景如画的时候，这条路标识清楚，会经过农场并单程终止于Rievaulx Abbey(修道院)，脚程不慢的话完全有机会买票进修道院，拿一张pamphlet想象古时侯僧侣的生活，补习一些英国文化。我去的时候正值National Trust搞活动，一位老奶奶热情给我介绍了修道院历史和参观要点，然后晓之以理动之以情希望我加入National Trust会员……
 
 ​	*(农场的小羊在乘凉)*
 
@@ -39,7 +39,7 @@ Helmsley and Rievaulx Abbey, & Pen-y-ghent & Whernside at Yorkshire Dales Nation
 
 ![](https://raw.githubusercontent.com/wkm-um/wkm-um.github.io/master/images/york_3.jpg)
 
-本想把这次作为2022年最后一爬，却没想到彩蛋出现在下山后。我算好时间踱步到火车站时发现电子指示牌上赫然滚动着着"因为员工短缺(shortage of train crew or whatever，本次火车取消"几个字，而下一班去leeds的火车要等接近两小时。10月的英国下午很早就开始变凉，而候车室因为是周末也不开门……不过不久就又有八九个一道来等车的英国人陆续发现了这个噩耗。曲折按下不表，我等到了两小时后到leeds的火车，又挤上了一列狂热坐满球迷的列车，站回了伦敦。
+本想把这次作为2022年最后一爬，却没想到彩蛋出现在下山后。我算好时间踱步到火车站时发现电子指示牌上赫然滚动着着"因为员工短缺(shortage of train crew or whatever，本次火车取消"几个字，而下一班去leeds的火车要等接近两小时。10月的英国下午很早就开始变凉，而候车室因为是周末也不开门，不久就又有八九个一道来等车的英国人陆续发现了这个噩耗……曲折按下不表，我等到了两小时后到leeds的火车，又挤上了一列狂热坐满球迷的列车，站回了伦敦。
 
 **Whernside**
 
@@ -47,7 +47,7 @@ Helmsley and Rievaulx Abbey, & Pen-y-ghent & Whernside at Yorkshire Dales Nation
 
 - 4小时 (环线), 中等
 
-此路线比pen-y-ghent更多人爬，但路程更长，对体力要求也更高。四月的山顶风和雾气都很大，所以除了食物和水也要做好足够的防风准备。在山顶看到很多人吃些东西转头就向下一个山峰方向进发，respect.
+此路线比pen-y-ghent更多人爬，但路程更长，对体力要求也更高。四月的山顶风和雾气都很大，所以除了带好食物和水也要做好足够的防风准备。在山顶看到很多人吃些东西转头就向下一个山峰方向进发，respect.
 
 ​	*(接近山顶的冲刺路段被雾气笼罩)*
 
