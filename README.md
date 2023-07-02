@@ -1,1 +1,1 @@
-感谢LOFFER与lemonchann有关github的教程。 文章内容转载需获得授权。
+感谢LOFFER与lemonchann有关github的教程，以及wingsofthesky有关“利用零碎时间在英国徒步”的系列博文。文章内容转载需获得授权。
